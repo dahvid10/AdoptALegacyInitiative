@@ -14,7 +14,7 @@ The Adopt-a-Legacy Initiative (ALI) connects African diaspora families with fami
 - The eldest members of the family will be involved during the adoption period.
 - Both parties must collaborate and draft an agreement that details both parties' historical context, exchanges, and familial standards prior to adoption.
 - Local governments for both parties will publish the agreements on the day of adoption.
-- Ensure all tribes are represented in all communication.
+- Ensure all communication represents all tribes.
 
 
 Context
