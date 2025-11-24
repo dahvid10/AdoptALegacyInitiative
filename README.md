@@ -23,5 +23,5 @@ Context
 - African diaspora often struggle to reconcile with past due to ongoing civil dissonance.
 - Colonialism damaged identity and community.
 - Internal African disputes and external pressures frustrate development.
-- Immigration frustrates both migrants and diaspora as they struggle to reconcile with past.
+- Immigration frustrates both migrants and diaspora as they struggle to reconcile with the past.
 - This initiative will connect the global community and foster African development by focusing on the African family.
